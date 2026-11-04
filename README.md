@@ -1,2 +1,0 @@
-# ValerdusOP
-My OP
